@@ -5,7 +5,7 @@
 ## **Yuliya Ruzhechka**
 
 ### mail : 
-ruzhechka@gmail.com / tel.: +33675964353 
+@gmail.com / tel.: 
 
 [LinkedIn profile](https://www.linkedin.com/in/ruzhechka/)
 
